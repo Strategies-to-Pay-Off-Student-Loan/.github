@@ -12,7 +12,7 @@ The first step in paying off your student loans faster is to create a detailed b
 Once you have a clear picture of your income and expenses, allocate a significant portion of your budget to student loan payments. Cut unnecessary expenses and redirect those funds towards your loans. This will help you make larger payments and reduce your loan balance faster.
 
 ### Shorter Repayment Terms
-Consider opting for a shorter repayment term when refinancing. While this may increase your monthly payments, it will help you pay off your loans faster and save on interest costs.
+Consider opting for a shorter repayment term when refinancing. While this may increase your monthly payments.
 
 Maintain a modest lifestyle even as your income grows, and channel the extra funds toward loan repayment.
 
